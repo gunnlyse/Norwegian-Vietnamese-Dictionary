@@ -1,0 +1,2 @@
+Norwegian-Vietnamese-Dictionary
+===============================
